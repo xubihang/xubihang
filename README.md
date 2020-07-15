@@ -14,6 +14,7 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 <img src="https://xubihang.name/image/https%3A%2F%2Fs3-us-west-2.amazonaws.com%2Fsecure.notion-static.com%2Ff80d8f9c-3b4b-47a8-9ac5-861a69148255%2F.png" width="100px">
+
 ## About Eric Xu 
 
 ### Product Manager
