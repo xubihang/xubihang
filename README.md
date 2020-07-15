@@ -19,17 +19,17 @@ Here are some ideas to get you started:
 
 Started by 2015. Focus on online healthcare sector. Interested in business model and society. You could know more of my experience [here](https://www.notion.so/xubihang/ERIC-XU-a6ac331d4e58486990d55d4227035eff).
 
-
+</br>
 
 ### Father and Husband
 
 Married to Li Y…… Having a quite adorable kid ☺️
-
+</br>
 
 
 ### A Lazy Humber Learner
-
-
+</br>
+</br>
 
 ### CyberAvatarBroadcast[1], AKA CAB:
 
