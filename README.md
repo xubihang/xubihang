@@ -46,4 +46,4 @@ Also, feel free to [contact me](mailto:me@xubihang.name).
 
 
 #### TEST
-@OSSDAO-ORG•AIRDROP-yourEthAddress
+@OSSDAO-ORG•AIRDROP-0x9a6BFC2C6B6019b6fE0e82Ac53BB15C23c863372
