@@ -37,7 +37,7 @@ Married to Li Y…… Having a quite adorable kid ☺️
 - [Blog](https://memo.xubihang.name)
 - [Daily Digests](https://digests.xubihang.name/)(archived)
 - [Instagram](https://www.instagram.com/xubihang/)
-- [Xiami](https://www.xiami.com/user/2592377)(currently dedicated to podcast😅️)
+- [Xiami](https://www.xiami.com/user/2592377)(currently dedicated to podcas
 - [Wetlife](https://m.lizhi.fm/vod/voicesheet/2617716272575917633?u=444962)(archived, maybe)
 
 Also, feel free to [contact me](mailto:me@xubihang.name).
